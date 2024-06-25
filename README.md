@@ -1,0 +1,1 @@
+# pol-tica-de-privacidade-semente-digital
