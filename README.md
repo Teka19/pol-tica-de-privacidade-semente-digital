@@ -1,7 +1,4 @@
 # pol-tica-de-privacidade-semente-digital
-Com certeza! Aqui está uma **política de privacidade** bem elaborada para uma empresa no ramo digital:
-
----
 
 # Política de Privacidade
 
