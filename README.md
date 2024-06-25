@@ -1,4 +1,4 @@
-# pol-tica-de-privacidade-semente-digital
+# Semente Digital
 
 # Política de Privacidade
 
